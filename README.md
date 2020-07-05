@@ -1,1 +1,1 @@
-*Drug a5646asdw2512a5s64d56a123sdasdasd
+*Drug a56a123sdasdasd
